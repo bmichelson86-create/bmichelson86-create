@@ -16,4 +16,4 @@ After 20 years keeping things moving in the high-speed world of logistics at **F
 * **Availability**: Currently open to new projects.
 * **Turnaround**: I usually get back to people within 24 hours.
 * **Email**: bmichelson86@gmail.com
-* **LinkedIn**: [linkedin.com/in/brandon-michelson](https://linkedin.com/in/brandon-michelson)
+* **LinkedIn**: https://www.linkedin.com/in/brandonmichelson/
