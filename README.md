@@ -22,4 +22,4 @@ Turnaround: I usually get back to people within 24 hours.
 
 Email: bmichelson86@gmail.com
 
-LinkedIn: linkedin.com/in/brandonmichelson
+LinkedIn: [linkedin.com/in/brandonmichelson](https://www.linkedin.com/in/brandonmichelson/)
